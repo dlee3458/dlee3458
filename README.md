@@ -7,4 +7,4 @@
 - 💬 Ask me about ... Anything, I'm all ears
 - 📫 How to reach me: ... dlee3458@gmail.com
 - 😄 Pronouns: ... He/him
-- ⚡ Fun fact: ... I think Elon Musk is hilarious
+- ⚡ Fun fact: ... I want to go to Mars one day
